@@ -54,7 +54,7 @@
 ---
 
 ## 📫 Bana Ulaşın  
-📧 **mailadresiniz@example.com**  
+📧 **aydincan6554@gmail.com**  
 🔗 [GitHub Profilim](https://github.com/aydincanlazoglu)  
 
 ---
